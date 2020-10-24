@@ -1,5 +1,5 @@
 Steps to Make Eggless Chocolate Cake
-1. Mix Maida, sugar, soda, and cocoa powder together.
+1. Mix Maida, sugar, soda, and cocoa powder together
 2. Combine oil with vinegar, milk and vanilla essence.
 3. Add it to the Maida sugar mixture and mix till smooth.
 4. Pour it in a cake container after greasing it with oil.
